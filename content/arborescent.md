@@ -1,0 +1,1 @@
+A hierarchy. The roots of the tree exist to serve the trunk. 

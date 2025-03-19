@@ -1,0 +1,3 @@
+From the bustling city within those trees, back into the parking lot boonies. I can see the roofs of the buildings, the streetlamp too tired to imitate the daytime sun, an untouched plain of tarmac. Modern machines, and yet they feel older than the mud on my boots.
+
+Not older so much as trapped in time. Empty parking lots like this one likely exist in this millennia alone. Those trees? They span eons~

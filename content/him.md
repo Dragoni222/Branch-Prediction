@@ -1,0 +1,1 @@
+This “he” floats through pronouns like a puppy plays with chew toys: fast and loose, whichever one smells the best in the moment. It’s only me and her in this story. Don’t let it trip you up.

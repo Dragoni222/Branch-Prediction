@@ -1,0 +1,3 @@
+It’s probably not capital-t-True or whatever. I’m sure someone out there has made more money than I can imagine on slots and blackjack. But I can’t think of a single time in my entire life that anything has happened outside of my control that has not been to my extreme benefit.
+
+My luck: a sickness to skip the worst lectures; bored afternoons give me the best ideas; heartbreak becomes better taste in erotica.

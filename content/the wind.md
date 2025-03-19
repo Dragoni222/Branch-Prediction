@@ -1,0 +1,1 @@
+It reaches down your throat, this wind. I choke on it. Bad gag reflex. I used to struggle with choking on the wind as a child. I would feel so helpless, battered off my path, barely breathing. Now I don’t mind so much. If I met someone with a voice as melodic as the wind’s, I would gladly choke on them too.

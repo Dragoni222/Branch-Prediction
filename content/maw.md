@@ -1,0 +1,1 @@
+As a child I dreamed of riding in the maw of a dragon. It feels safe precisely because it is so dangerous. To have a monster of such proportion take care not to hurt you with its huge fangs. If the dragon chooses to prioritize your life over its insatiable hunger, there is no safer place in the world than her maw. 

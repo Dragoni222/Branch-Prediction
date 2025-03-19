@@ -1,0 +1,1 @@
+ Every day, every second better than the last. That’s about how I’ve always felt. Future-Me looks back and gives me a [[Sign-Of-The-Horns]]. Past-Me looks forwards, jaw agape, “how the hell did I get there?” Not a day in my life that hasn’t been true.

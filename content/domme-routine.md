@@ -1,0 +1,1 @@
+The architecture of the [[post-human]] CPU cannot be [[arborescent]], it must be [[rhizomatic]]. As such, no part of the whole is lesser or greater than any other, simply connected in a different way. Some routines submit. Other routines dominate. Consensually.

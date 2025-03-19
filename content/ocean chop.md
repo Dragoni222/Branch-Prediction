@@ -1,0 +1,1 @@
+Everyone's got their ocean somewhere. The first ocean that comes to mind for them. I just love dreary days, so mine is more of the lighthouse, rocky cliffs, cloudy-without-rain sort. 

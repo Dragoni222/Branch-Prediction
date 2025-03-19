@@ -1,0 +1,1 @@
+Ancient Toyota RAV-4. The day [[him|she]] was forced to clean it was a travesty. By the time this story takes place, it regained it's former glory. Trampled McDonalds bags, an errant basketball, discarded essays.  Call it seasoning. 
